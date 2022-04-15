@@ -1,1 +1,0 @@
-# ItshirakD.github.io
